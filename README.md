@@ -6,4 +6,6 @@
 
 !<p align="center">![climber endzone](https://i.pinimg.com/originals/8a/18/58/8a18583b74e5fb18aa16e7e8c233a2c7.png)</p>
 
-**<p align="center">[interests masterlist](https://rentry.co/broker-phighting)  .  [strawpage](https://meowfullofchocolate.straw.page) . [pronouns page](https://en.pronouns.page/@jack_fkennedy) . [atabook](https://absentminded.atabook.org/?page=1) . [rentry (OLD)](https://rentry.co/princessclover)</p>**
+**<p align="center">[interests masterlist](https://rentry.co/broker-phighting)  .  [strawpage](https://meowfulofchocolate.straw.page) . [pronouns page](https://en.pronouns.page/@jack_fkennedy) . [atabook](https://absentminded.atabook.org/?page=1) . [rentry (OLD)](https://rentry.co/princessclover)</p>**
+
+PS: fixed the strawpage link.. 
